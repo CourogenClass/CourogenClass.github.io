@@ -1,2 +1,0 @@
-
-# CourogenClass.github.io
